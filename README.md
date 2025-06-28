@@ -30,7 +30,7 @@ Trust me, it slaps!
 👀 Wanna see it in action?  
 Click here 👉 [https://rakesh12531.github.io/ecommerce2_project/](https://rakesh12531.github.io/ecommerce2_project/)  
 
-✨ Try it on desktop, tablet, or mobile — it adapts like a chameleon 🦎💥
+✨ Try it on desktop!
 
 ---
 
